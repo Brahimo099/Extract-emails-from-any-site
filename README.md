@@ -16,8 +16,9 @@ BY  Brahimo099
 https://github.com/Brahimo099
 
 
+This is my PayPal account to help and contribute to building my project :
 
-
+almohtariff1@gmail.com
 
 
 
